@@ -1,4 +1,1 @@
 # 100daysofchallange
-
-Aur
-jjj
